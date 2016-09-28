@@ -1,2 +1,2 @@
 # hello-world
-sic parvis magna
+Education, Photography, Coffee and Nature lover :).
